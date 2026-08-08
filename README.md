@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on **exciting web projects that challenge my skills and broaden my experience**.
 
-📫 How to reach me: **[Email me](mailto:arhimanshu4567@gmail.com)** or connect with me on [LinkedIn](https://www.linkedin.com/in/prabhtesh-mishra).
+📫 **[Email me](mailto:arhimanshu4567@gmail.com)** or connect with me on [LinkedIn](https://www.linkedin.com/in/prabhtesh-mishra).
 
 😄 Pronouns: **He/Him?Himanshu/haha**.
 
